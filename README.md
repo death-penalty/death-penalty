@@ -6,6 +6,9 @@
 -Unfortunately deathly afraid of interaction with strangers, approach with caution (slash silly..). Overall, I'm fine with C+H but keep this in mind.
 
 -TF2 and Overwatch enjoyer.
+
 -My beloved boyfriend made my Strawpage, with the text and gallery being done by me.
+
 -I hide and unfriend freely.
+
 -PLEASE leave me gimmicks or whispers! I love responding to them and I will try to add what I can onto the site! :-)
