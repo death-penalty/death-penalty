@@ -1,5 +1,7 @@
 ## Hi there ! 🫀
--I go by Medic, Mr. Ludwig or Edd. My pronouns are he/it/she, most info will be seen on my strawpage. Open and not afraid to show it, a lesbian male and a gay woman, bearbutch. Overall, call me a lesboy if you'd like. I'm genderfluid and abrosexual.
+-I go by Medic, Mr. Ludwig or Edd. My pronouns are he/it/she, most info will be seen on my strawpage. 
+
+-Open and not afraid to show it, a lesbian male and a gay woman, bearbutch. Overall, call me a lesboy if you'd like. I'm genderfluid and abrosexual.
 
 -I am **not** a rp pony / account, I'll be seen 'IC' sometimes but that does not mean I am looking for RP. Please don't come up to me for such! :-(
 
