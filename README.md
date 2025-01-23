@@ -5,7 +5,7 @@
 
 -I am **not** a rp pony / account, I'll be seen 'IC' sometimes but that does not mean I am looking for RP. **Do not come up to me for rps.**
 
--Unfortunately deathly afraid of interaction with strangers, approach with caution (slash silly..). Overall, I'm fine with C+H but keep this in mind.
+-**Unfortunately deathly afraid of interaction** with basically every1, approach with caution (slash silly..). Overall, I'm fine with C+H but keep this in mind.
 
 -TF2 and Overwatch enjoyer.
 
