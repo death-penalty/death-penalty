@@ -11,6 +11,4 @@
 
 -My beloved boyfriend made my Strawpage, with the text and gallery being done by me.
 
--I hide and unfriend freely.
-
 -PLEASE leave me gimmicks or whispers! I love responding to them and I will try to add what I can onto the site! :-) New music every fri-sun depending on if I get to it.
