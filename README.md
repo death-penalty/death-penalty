@@ -1,5 +1,5 @@
 ## Hi there ! 🫀 Go to my StrawPage !
--I go by Medic, Mr. Ludwig or Edd. My pronouns are he/it/she, most info will be seen on my strawpage. 
+-I go by Medic, Mr. Ludwig, Herbert or Edd. My pronouns are he/it/she, most info will be seen on my strawpage. 
 
 -Open and not afraid to show it, a lesbian male and a gay woman, bearbutch. Overall, call me a lesboy if you'd like. I'm genderfluid and abrosexual.
 
